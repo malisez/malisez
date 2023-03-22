@@ -1,6 +1,8 @@
-❤️❤️❤️ MY WEBSITE: https://malis.webste ❤️❤️❤️
+❤️❤️❤️ MY WEBSITE: https://malis.website ❤️❤️❤️
 
 DEVELOPER IN: 👉👉👉 https://discord.gg/moonac 👈👈👈
+
+HELPING DEVELOPER IN: 👉👉👉 https://discord.gg/layrp 👈👈👈
 
 -----> <-----
 
